@@ -1,6 +1,6 @@
 Hi, I’m @SodyElia
  I’m interested in code
-   I’m currently learning 
+   I’m currently a new developeeeeee
   I’m looking to collaborate on code
    reach me on eliamgeusody@yahoo.com
   Fun fact: am first year student
