@@ -1,7 +1,7 @@
 Hi, I’m @SodyElia
  I’m interested in code
-   I’m currently a new developeeeeee
-  I’m looking to collaborate on code
+   I’m currently small developer
+  I’m looking to collaborate on code and job
    reach me on eliamgeusody@yahoo.com
   Fun fact: am first year student
 
